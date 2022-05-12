@@ -1,1 +1,1 @@
-# Final-Mjor-Project
+# Final-Major-Project
